@@ -1,3 +1,4 @@
 # planets
 # planets
 # planets
+THE SUN AND THE MOON ARE AMAZING. WE WOULD NOT BE HERE WITHOUT THEM!
